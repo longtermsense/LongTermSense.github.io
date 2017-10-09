@@ -14,7 +14,7 @@
 
 ![Image](http://cramer.com/webhook-uploads/1439904145937/ProjectSunroof.jpg)
 
-[Image](https://www.metal-archives.com/images/3/5/4/0/3540257238_logo.jpg)
+![Image](https://www.metal-archives.com/images/3/5/4/0/3540257238_logo.jpg)
  - DISCLOSURE:
  
 #Notice of Non-Affiliation and Disclaimer 
