@@ -14,14 +14,11 @@
 
 ![Image](http://cramer.com/webhook-uploads/1439904145937/ProjectSunroof.jpg)
 
-![Image](https://www.metal-archives.com/images/3/5/4/0/3540257238_logo.jpg)
-
 ![Image](https://www.thinkworldinteractive.com/wp-content/uploads/2016/07/zizmos_logo.jpg)
 
  
 
-
-
+![Image](https://www.metal-archives.com/images/3/5/4/0/3540257238_logo.jpg)
 
 #Notice of Non-Affiliation and Disclaimer 
 
