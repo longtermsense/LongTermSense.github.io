@@ -8,13 +8,15 @@
 
 [Link](url) and ![Image](src)
 
-## Type of Clients
+## Companies we proudly serve.
 
 ![Image](http://techomebuilder.com/wp-content/uploads/2015/10/case-studies_solar-city1.jpg)
 
 ![Image](http://cramer.com/webhook-uploads/1439904145937/ProjectSunroof.jpg)
 
 ![Image](https://www.zizmos.com/whiteboard/FAQ-7-Linnea.png)
+
+![Image](https://tctechcrunch2011.files.wordpress.com/2015/06/aclima_node_city-e1435638764474.jpg)
 
  
 
