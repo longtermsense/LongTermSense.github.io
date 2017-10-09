@@ -14,7 +14,7 @@
 
 ![Image](http://cramer.com/webhook-uploads/1439904145937/ProjectSunroof.jpg)
 
-![Image](https://www.thinkworldinteractive.com/wp-content/uploads/2016/07/zizmos_logo.jpg)
+![Image](https://www.zizmos.com/whiteboard/FAQ-7-Linnea.png)
 
  
 
