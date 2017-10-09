@@ -20,7 +20,7 @@
 
 ![Image](https://www.metal-archives.com/images/3/5/4/0/3540257238_logo.jpg)
 ____________
-##Notice of Non-Affiliation and Disclaimer 
+## Notice of Non-Affiliation and Disclaimer 
 
 ```
 We are not affiliated, associated, authorized, endorsed by, or in any way officially connected with SolarCity, or any of its subsidiaries or its affiliates. The official SolarCity website can be found at http://www.SolarCity.com. The name “SolarCity” as well as related names, marks, emblems and images are registered trademarks of SolarCity. 
