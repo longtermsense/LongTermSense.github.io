@@ -6,8 +6,6 @@
 
 
 
-[Link](url) and ![Image](src)
-
 ## Companies we proudly serve.
 
 ![Image](http://techomebuilder.com/wp-content/uploads/2015/10/case-studies_solar-city1.jpg)
