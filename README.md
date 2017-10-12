@@ -17,8 +17,8 @@
  ____________________________________________________________________________________________________
 
 ## Contact Us
- longtermsense (at) gmail dot com
-_____________________________________________________________________________________________________
+We can be reached at **longtermsense (at) gmail dot com**
+
 
 ![Image](https://www.metal-archives.com/images/3/5/4/0/3540257238_logo.jpg)
 
